@@ -1,0 +1,1 @@
+# y2Lucky.github.io
